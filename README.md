@@ -1,2 +1,2 @@
 
-### Olá! Eu sou Felipe e criador da CodinDesign! 🖥️🖌️
+### Olá! Eu sou Felipe,criador da CodinDesign! C&D 🖥️🖌️
